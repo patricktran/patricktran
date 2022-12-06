@@ -17,4 +17,4 @@
 
 ## Contact 🌍
 
-- [**LinkedIn**](www.linkedin.com/in/patricktran43)
+- [**LinkedIn**](https://www.linkedin.com/in/patricktran43)
